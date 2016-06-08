@@ -1,4 +1,4 @@
 Hi 
 good morning.
               
-              have a noice day
+              have a nice day
